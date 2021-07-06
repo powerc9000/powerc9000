@@ -1,4 +1,3 @@
-[Utah IWW](https://utahiww.org)
 ### ABOLISH ICE
 ### ABOLISH THE POLICE
 ### ABOLISH PRISONS
